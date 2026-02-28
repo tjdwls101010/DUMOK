@@ -1,5 +1,7 @@
 # 두목선생님 프사
 
+![](Images/gemini-3-pro-1772265084634oz7y71z3q.png)
+
 ![](Images/assets_task_01k41mz0zpfwpv6z6pcgq0rfht_1756697295_img_0.webp)
 
 ![](Images/assets_task_01k4mrf0w9ftssc23246maxbjz_1757338511_img_0.webp)
