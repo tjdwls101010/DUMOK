@@ -4,6 +4,8 @@
 
 ![](Images/forest-gump.png)
 
+![](Images/gemini-3-pro-1774265890176ioxhdiv1w.png)
+
 ![](Images/gemini-3-pro-1774234264741v5r4drcwf.png)
 
 ![](Images/gemini-3-pro-1774118610487bkbqf6t4i.png)
